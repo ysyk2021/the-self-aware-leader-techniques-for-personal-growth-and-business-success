@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Leadership Style: Identifying Areas for Improvement and Growth
-========================================================================================
+# Identifying Areas for Improvement and Growth
 
 Assessing your leadership style is just the first step towards becoming a more effective leader. Once you have identified your strengths and weaknesses, it's important to focus on areas for improvement and growth.
 

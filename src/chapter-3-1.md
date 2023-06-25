@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Leadership Style: Different Leadership Styles and Their Impact on Teams
-=================================================================================================
+# Different Leadership Styles and Their Impact on Teams
 
 Leadership style plays a crucial role in the success of any organization. In this chapter, we will explore different leadership styles and their impact on teams, and provide strategies for assessing and improving your own leadership approach.
 

@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Leadership Style: Self-assessment tools to determine your leadership style
-====================================================================================================
+# Self-assessment tools to determine your leadership style
 
 As a leader, it's important to understand your own leadership style and how it affects your team. By being self-aware of your strengths and weaknesses, you can become a more effective leader and achieve greater business success.
 

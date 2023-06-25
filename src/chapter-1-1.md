@@ -1,4 +1,4 @@
-Introduction: Overview of the Book's Purpose and Structure
+Overview of the Book's Purpose and Structure
 ==========================================================
 
 Welcome to "The Self-Aware Leader: Techniques for Personal Growth and Business Success". This book is designed to provide leaders with the tools and strategies they need to develop self-awareness and use it to achieve personal and professional success.

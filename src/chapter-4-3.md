@@ -1,5 +1,4 @@
-Chapter 3: Mindfulness for Leaders: How mindfulness can improve decision-making, creativity, and emotional intelligence
-=======================================================================================================================
+# How mindfulness can improve decision-making, creativity, and emotional intelligence
 
 Mindfulness is a powerful tool for leaders who want to improve their decision-making, creativity, and emotional intelligence. In this chapter, we will explore the benefits of mindfulness for leaders and practical strategies for incorporating mindfulness into your daily routine.
 

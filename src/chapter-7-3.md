@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Personal Growth: Importance of Accountability and Support Systems
-===========================================================================================
+# Importance of Accountability and Support Systems
 
 Personal growth is an essential component of effective leadership. In this chapter, we will explore the importance of accountability and support systems in achieving personal growth and success.
 

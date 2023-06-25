@@ -1,5 +1,4 @@
-Chapter 5: Developing a Growth Mindset: How a growth mindset can lead to greater resilience and adaptability in the face of challenges
-======================================================================================================================================
+# How a growth mindset can lead to greater resilience and adaptability in the face of challenges
 
 A growth mindset is a powerful tool for leaders who want to become more resilient and adaptable in the face of challenges. In this chapter, we will explore the benefits of a growth mindset, as well as practical strategies for developing this important skill.
 

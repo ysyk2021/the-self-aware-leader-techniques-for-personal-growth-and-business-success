@@ -1,5 +1,4 @@
-Chapter 7: Applying Self-Awareness to Business Success: Examples of successful leaders who prioritize self-awareness
-====================================================================================================================
+# Examples of successful leaders who prioritize self-awareness
 
 Self-awareness is a critical skill for business success. Many successful leaders have prioritized self-awareness as part of their leadership approach. In this chapter, we will explore examples of successful leaders who prioritize self-awareness and the impact it has had on their organizations.
 

@@ -1,5 +1,4 @@
-Chapter 5: Developing a Growth Mindset: Explanation of fixed vs. growth mindsets
-================================================================================
+# Explanation of fixed vs. growth mindsets
 
 Developing a growth mindset is essential for personal and professional growth. A growth mindset refers to the belief that abilities and intelligence can be developed through dedication and hard work, while a fixed mindset refers to the belief that abilities and intelligence are innate and cannot be changed. In this chapter, we will explore the differences between fixed and growth mindsets.
 

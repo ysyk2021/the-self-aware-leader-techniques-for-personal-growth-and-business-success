@@ -1,5 +1,4 @@
-Chapter 3: Mindfulness for Leaders: Techniques for cultivating mindfulness, including meditation and breathing exercises
-========================================================================================================================
+# Techniques for cultivating mindfulness, including meditation and breathing exercises
 
 Mindfulness is a powerful tool for leaders who want to improve their focus, productivity, and emotional intelligence. By practicing mindfulness techniques such as meditation and breathing exercises, we can become more present and centered in our daily lives. In this chapter, we will explore techniques for cultivating mindfulness as a leader.
 

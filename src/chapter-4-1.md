@@ -1,5 +1,4 @@
-Chapter 3: Mindfulness for Leaders: Introduction to mindfulness and its benefits for leaders
-============================================================================================
+# Introduction to mindfulness and its benefits for leaders
 
 Mindfulness is a state of being present and fully engaged in the current moment, without judgment or distraction. It is a powerful tool for leaders who want to improve their focus, productivity, and emotional intelligence. In this chapter, we will explore the basics of mindfulness and its benefits for leaders.
 
