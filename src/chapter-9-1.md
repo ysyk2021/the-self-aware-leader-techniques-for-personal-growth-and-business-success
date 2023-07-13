@@ -1,4 +1,4 @@
-Conclusion: Summary of key takeaways
+Summary of key takeaways
 ====================================
 
 Congratulations on completing "The Self-Aware Leader: Techniques for Personal Growth and Business Success." Here are some key takeaways from the book:
