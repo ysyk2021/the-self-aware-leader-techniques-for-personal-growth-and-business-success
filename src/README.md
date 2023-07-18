@@ -8,5 +8,4 @@ Through practical strategies, techniques and real-life examples, readers will le
 
 Whether you're a seasoned executive looking to sharpen your leadership skills or a new manager seeking guidance, "The Self-Aware Leader: Techniques for Personal Growth and Business Success" offers valuable insights and actionable advice to help you become a more effective and successful leader.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
