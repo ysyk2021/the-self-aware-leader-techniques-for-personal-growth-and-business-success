@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book's purpose and structure](chapter-1-1.md)
   - [Explanation of the importance of self-awareness in leadership](chapter-1-2.md)
 - [Chapter 1: Understanding Self-Awareness](chapter-2.md)
   - [Definition and explanation of self-awareness](chapter-2-1.md)
