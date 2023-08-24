@@ -1,5 +1,3 @@
-Strategies for Overcoming Obstacles and Staying Motivated
-==================================================================
 
 In this chapter, we will explore effective strategies that self-aware leaders can employ to overcome obstacles and maintain high levels of motivation on their personal growth journey towards business success.
 

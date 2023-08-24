@@ -1,5 +1,3 @@
-Chapter 4: Emotional Intelligence and Self-Regulation
-=====================================================
 
 Emotional intelligence is the ability to recognize, understand, and manage our own emotions, as well as those of others. In this chapter, we will explore the importance of emotional intelligence in leadership, as well as techniques for improving self-regulation and managing emotions in the workplace.
 

@@ -1,5 +1,3 @@
-Self-Assessment Tools to Determine Your Leadership Style
-===================================================================
 
 In order to become an effective leader, it is crucial to understand your own leadership style. Self-awareness plays a vital role in personal growth and business success. By identifying your strengths and weaknesses as a leader, you can adapt your approach to different situations and effectively lead your team towards achieving goals.
 

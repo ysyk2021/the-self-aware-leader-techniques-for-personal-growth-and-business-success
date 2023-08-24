@@ -1,5 +1,3 @@
-Introduction to Mindfulness and Its Benefits for Leaders
-===================================================================
 
 Understanding Mindfulness
 -------------------------

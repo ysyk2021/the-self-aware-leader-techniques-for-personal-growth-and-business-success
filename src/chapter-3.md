@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Leadership Style
-==========================================
 
 Effective leadership requires self-awareness and an understanding of your own leadership style. In this chapter, we will explore different leadership styles, self-assessment tools to determine your leadership style, and strategies for identifying areas for improvement and growth.
 

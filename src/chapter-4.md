@@ -1,5 +1,3 @@
-Chapter 3: Mindfulness for Leaders
-==================================
 
 Mindfulness is the practice of being present and fully engaged in the current moment, without judgment. In this chapter, we will explore the benefits of mindfulness for leaders, as well as techniques for cultivating mindfulness in the workplace.
 

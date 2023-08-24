@@ -1,4 +1,3 @@
-# Introduction
 
 Effective leadership is not just about achieving results, it's also about creating a positive work environment where everyone can thrive and succeed. To do this, leaders must be self-aware, emotionally intelligent and continuously strive to improve themselves. This is where "The Self-Aware Leader: Techniques for Personal Growth and Business Success" comes in.
 

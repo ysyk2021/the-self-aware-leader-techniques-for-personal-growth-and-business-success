@@ -1,7 +1,3 @@
-Explanation of Fixed vs. Growth Mindsets
-=================================================
-
-
 
 In this chapter, we will explore the concept of mindsets and delve into the differences between fixed and growth mindsets. Understanding these two types of mindsets is crucial for personal growth and achieving success in both personal and business endeavors.
 

@@ -1,5 +1,3 @@
-Different Leadership Styles and Their Impact on Teams
-==============================================================
 
 In any organization or team, leadership plays a vital role in shaping the overall dynamics and success. Leaders have the power to influence and motivate their teams towards achieving common goals. However, leaders can adopt different styles based on their personality, values, and beliefs. Each leadership style has its unique impact on teams, affecting their productivity, morale, and collaboration. In this chapter, we will explore some of the most common leadership styles and analyze their effects on teams.
 

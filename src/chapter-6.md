@@ -1,5 +1,3 @@
-Chapter 5: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is critical for personal and professional development. In this chapter, we will explore the differences between fixed and growth mindsets, as well as techniques for cultivating a growth mindset in the workplace.
 
